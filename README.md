@@ -1,0 +1,1 @@
+# Harmonic-Subfield-Expansion-Full-K-System-Thermal-Light-Fluid-Integration-for-Defense-Grade-
